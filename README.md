@@ -1,1 +1,1 @@
-![alt_text](https://media2.giphy.com/media/MY1EJgjpXUwMrzQpAk/giphy.gif)
+![alt_text](https://i.kym-cdn.com/photos/images/newsfeed/002/322/167/b9f.gif)
